@@ -1,8 +1,1 @@
-Boas-vindas
-ao
-meu
-perfil
-meu
-nome
-é
-izadora💞
+bem vindo, meu nome é Izadora 💞
